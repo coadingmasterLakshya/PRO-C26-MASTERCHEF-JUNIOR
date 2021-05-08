@@ -1,0 +1,4 @@
+1. In a large bowl, cream butter and sugar until light and fluffy. Add eggs, one at a time, beating well after each addition. Beat in vanilla. Combine the flour, baking powder, baking soda and salt; add to creamed mixture alternately with buttermilk, beating well after each addition.
+2. Pour into a greased and floured 10-in. tube pan. Bake at 350° until a toothpick inserted in center comes out clean, 55-70 minutes. Cool 10 minutes. Run a knife around edges and center tube of pan. Invert cake onto a wire rack over waxed paper.
+3. For sauce, combine the sugar, butter and water in a small saucepan. Cook over medium heat just until butter is melted and sugar is dissolved. Remove from the heat; stir in extracts.
+4. Poke holes in the top of the warm cake; spoon 1/4 cup sauce over cake. Let stand until sauce is absorbed. Repeat twice. Poke holes into sides of cake; brush remaining sauce over sides. Cool completely.
